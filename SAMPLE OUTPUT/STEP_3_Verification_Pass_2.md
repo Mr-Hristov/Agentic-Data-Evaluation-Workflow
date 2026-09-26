@@ -1,0 +1,5 @@
+***[▼ INTEGRATION ANCHOR: Insert beneath H2: Launch Success Elements -> **Illustrative Story:** ]***
+**Illustrative Story:** Remember to subscribe to I Love Marketing so that you don't miss a future episode. Visit ilovemarketing. Com forward slash subscribe for more.
+
+***[▼ INTEGRATION ANCHOR: Insert beneath H2: Launch Success Elements -> **Illustrative Story:** ]***
+**Illustrative Story:** Jason Flatland has, at the age of 30, created two separate seven-figure businesses from scratch. That's pretty impressive considering just seven and a half years ago he was painting houses for $12 an hour and living in a 350 square foot apartment. He has tens of thousands of customers who seek him out for his internet marketing systems. Jason is probably best known for his ability to get results extremely quickly. He is also considered one of the foremost experts on using webinars. These days, he spends most of his time focusing on rapid, on-growing Rapid Crush Inc. with his business partner, Willis Matos, a company that is on pace to break eight figures and give it up. Maybe you've already broken eight figures. Give it up for Jason.

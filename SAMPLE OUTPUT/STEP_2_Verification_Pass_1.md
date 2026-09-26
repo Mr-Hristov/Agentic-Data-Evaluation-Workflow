@@ -1,0 +1,5 @@
+***[▼ INTEGRATION ANCHOR: Insert beneath H2: Launch Success Elements -> **Core Strategy:** Launch success really breaks down to this.]***
+**Core Principle:** Who here has ever created a product that they wanted to sell? That's a product launch. Now, just because nobody bought it doesn't mean you didn't launch it, okay? There's a strategy, and then there's a hopefully filled a dream somebody shows up and buys it kind of a concept.
+
+***[▼ INTEGRATION ANCHOR: Insert beneath H2: The Flaws of Normal Launches -> **Common Mistake:** Normal launches typically look like this.]***
+**Illustrative Story:** This is typically how most people do a promotion. So in this particular case, pre-launch started April 13th. They had a couple videos talking about this opportunity while it was so great, and yeah, maybe later I'll sell you something. And then they do sell you something on April 22nd, and then the cart closes on April 30th.
